@@ -1,4 +1,9 @@
+
+
 # Supernazwatest1
 
-hej czy ty wiesz
-lolxd
+wazny projekt na zaliczenie
+
+latwe 5 essa 
+
+
